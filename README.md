@@ -1,0 +1,1 @@
+# SmartScrap-Solution
